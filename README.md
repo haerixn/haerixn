@@ -31,9 +31,13 @@
 <p align="center"![Profile Views](https://komarev.com/ghpvc/?username=lyrxqss&color=green&label=delusus)
 
 
-  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=cgo1nbhfibb223rkc10kxe6p1&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=cgo1nbhfibb223rkc10kxe6p1&redirect=true)
+ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=cgo1nbhfibb223rkc10kxe6p1&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=cgo1nbhfibb223rkc10kxe6p1&redirect=true)
 
-![Profile Views](https://komarev.com/ghpvc/?username=lyrxqss&color=blue&label=bunnies) <img width="100x100" height="30" src=https://64.media.tumblr.com/edb1aa4ae23592c196c38cf631d44402/f7f35962258ebe0c-41/s75x75_c1/a7b4c7390f07c03b17cd5f99b176ec0ebd4898a8.gif>
+
+
+<p align="center">
+ ⋅˚₊‧ ଳ⋆.ೃ࿔*:･ <img src="https://komarev.com/ghpvc/?username=lyrxqss&label=bunnies&color=445486" alt="bunnies" /> ⋅˚₊‧ ଳ⋆.ೃ࿔*:･
 </p>
-</p>
+
+
 
