@@ -1,6 +1,5 @@
 <p align="center">   <img width="900x717" height=100" src=https://github.com/fallenbutterfly/lyrxqss-2/blob/9b0c9fa99ca48aa59991183b73227e1f1f4c48e9/tumblr_f988f6c4ad86c54c9207caf882a90834_6353daf4_540.gif>
-</p> </p><p align="center"> 𝘥𝘪𝘷𝘪𝘥𝘦𝘳 𝘣y [Your Link Here](https://www.youtube.com/watch?v=2Kff0U8w-aU&list=RDWb-WCbHXnAw&index=2)
- 
+</p> </p><p align="center"> 𝘥𝘪𝘷𝘪𝘥𝘦𝘳 𝘣y 
    
 
 
