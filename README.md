@@ -1,7 +1,12 @@
 <p align="center">   <img width="900x717" height=100" src=https://github.com/fallenbutterfly/lyrxqss-2/blob/9b0c9fa99ca48aa59991183b73227e1f1f4c48e9/tumblr_f988f6c4ad86c54c9207caf882a90834_6353daf4_540.gif>
 </p> </p><p align="center"> 
 
-
+<p align="center">
+𝘥𝘪𝘷𝘪𝘥𝘦𝘳 𝘣𝘺  <a href="https://www.tumblr.com/dollywons?source=share">𝘥𝘰𝘭𝘭𝘺𝘸𝘰𝘯𝘴</a>
+</p>
+ 
+                    
+ 
 <p align="center">   <img width="600x900" height="900" src=https://github.com/fallenbutterfly/lyrxqss-2/blob/689450e5b74957409e65c068e4252d7f19c746f8/1x%20Nostalgic%20K-pop%20Y2K%20Stickers%20Water%20Bottle%20Stickers%20Girl%20Group%20Stickers%20K-pop%20Decal%20Y2K%20Style%20Haerin%20Sticker%20Laptop%20Sticker%20Gift-Photoroom.png>
 </p></p><p align="center">𝘕𝘰𝘵 𝘫𝘶𝘴𝘵 𝘢𝘯𝘺𝘣𝘰𝘥𝘺 너를 상상했지
 항상 닿아있던
