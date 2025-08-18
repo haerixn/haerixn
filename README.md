@@ -1,4 +1,4 @@
-<p align="center">   <img width="900x717" height=500" src=https://github.com/fallenbutterfly/lyrxqss-2/blob/9b0c9fa99ca48aa59991183b73227e1f1f4c48e9/tumblr_f988f6c4ad86c54c9207caf882a90834_6353daf4_540.gif>
+<p align="center">   <img width="200x240" height=100" src=https://github.com/fallenbutterfly/lyrxqss-2/blob/9b0c9fa99ca48aa59991183b73227e1f1f4c48e9/tumblr_f988f6c4ad86c54c9207caf882a90834_6353daf4_540.gif>
 </p> </p><p align="center"> 
 
 <p align="center">
