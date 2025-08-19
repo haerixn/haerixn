@@ -21,12 +21,6 @@
 
  
  
-<p align="center">   <img width="900x417" height="500" src=https://github.com/fallenbutterfly/lyrxqss-2/blob/38890edb460e8fb8e62704266f18360eca3e4e51/tumblr_4be3429ac4e65163dec5ed1c8a8c56b5_2d3f6552_2048%20(1).gif>
-</p>
-
-
-
-
 
 <p align="center"![Profile Views](https://komarev.com/ghpvc/?username=lyrxqss&color=green&label=delusus)
 
