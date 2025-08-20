@@ -13,7 +13,8 @@
 
 </p>
 <p align="center">
-  <em>Not just anybody</em> 너를 상상했지 항상 닮아있던 <img width="100x100" height="20" src=https://64.media.tumblr.com/1ed9acdc6c7ccb2db2bad2951580c1ab/2f692420ece9ceb5-97/s75x75_c1/5a3d1169e7d9818b2f3886b836447518d1eeae97.gif>
+  <em>Not just anybody</em> 너를 상상했지 항상 닮아있던 처음 느낌 그대로 난
+기다렸지 all this time
 </p>
 
 </p>
