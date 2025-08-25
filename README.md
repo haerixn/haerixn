@@ -1,4 +1,4 @@
-<p align="center">   <img width="200%"  src=https://github.com/haerixn/lyrxqss-2/blob/76c5071c525bb40eaa52d9885b32f8ce0ce81a7a/ditto%20core.jpeg>
+<p align="center">   <img width="200% <img  height="200% src=https://github.com/haerixn/lyrxqss-2/blob/76c5071c525bb40eaa52d9885b32f8ce0ce81a7a/ditto%20core.jpeg>
 </p> </p><p align="center"> 
 
  </p>
