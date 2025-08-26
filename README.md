@@ -1,8 +1,9 @@
-<p align="center">   <img width="200% <img  height="200% src=https://github.com/haerixn/lyrxqss-2/blob/76c5071c525bb40eaa52d9885b32f8ce0ce81a7a/ditto%20core.jpeg>
-</p> </p><p align="center"> 
+<p align="center">
+  <img src="https://github.com/haerixn/lyrxqss-2/blob/36b52965724011cc4a877314a516f72387d96eed/NewJeans%20Super%20Shy%20Haerin%20icon-Photoroom.png" alt="Açıklama" width="500">
+</p>
 
- </p>
                     
+
 <p align="center">
   <em>Not just anybody</em> 너를 상상했지 항상 닮아있던 처음 느낌 그대로 난
 기다렸지 <em>all this time.</em>
