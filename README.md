@@ -1,3 +1,7 @@
+
+
+
+
 <p align="center">
   <img src="https://github.com/haerixn/lyrxqss-2/blob/36b52965724011cc4a877314a516f72387d96eed/NewJeans%20Super%20Shy%20Haerin%20icon-Photoroom.png" alt="Açıklama" width="500">
 </p>
@@ -11,7 +15,10 @@
 
 </p>
 
- 
+<p align="center">
+  <a href="https://phmhanni.straw.page">strawpage</a>&nbsp;&nbsp;&nbsp;
+  <a href="https://lyrxqss.atabook.org">atabook</a>
+</p> 
  
 
 <p align="center"![Profile Views](https://komarev.com/ghpvc/?username=lyrxqss&color=green&label=delusus)
