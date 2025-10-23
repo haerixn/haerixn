@@ -3,7 +3,7 @@
 
 
 <p align="center">
-  <img src="https://github.com/haerixn/lyrxqss-2/blob/36b52965724011cc4a877314a516f72387d96eed/NewJeans%20Super%20Shy%20Haerin%20icon-Photoroom.png" alt="Açıklama" width="500">
+  <img src="https://github.com/haerixn/lyrxqss-2/blob/1205298657b1609e3fdec19308937f67812c1470/sua%20gif.gif" alt="Açıklama" width="500">
 </p>
 
                     
