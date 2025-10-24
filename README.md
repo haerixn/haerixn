@@ -3,7 +3,7 @@
 
 
 <p align="center">
-  <img src="https://github.com/haerixn/lyrxqss-2/blob/df1f42f7e18ac7f122162f779bdeec41a43ee21f/sua%20mini%20figure%20%CB%9A%E2%80%A7%F0%9F%AA%BC%EF%BD%A1%E2%8B%86-Photoroom.png" alt="Açıklama" width="400">
+  <img src="https://github.com/haerixn/lyrxqss-2/blob/fd2014a0cb73a25c0d30b99df9476371f03e5fe1/%E2%80%94%20%E2%A0%80%20Sua%E2%A0%80%E2%A0%80%20Alnst%E2%A0%80%20%E2%A0%80%2C%E2%A0%80%E2%A0%80%20Cr%E2%A0%80%20%E2%A0%80%20lubyaalnst%E2%A0%80%E2%A0%80%20!-Photoroom.png" alt="Açıklama" width="400">
 </p>
                   
 <p align="center">
