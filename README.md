@@ -3,11 +3,9 @@
 
 
 <p align="center">
-  <img src="https://github.com/haerixn/lyrxqss-2/blob/1205298657b1609e3fdec19308937f67812c1470/sua%20gif.gif" alt="Açıklama" width="500">
+  <img src="https://github.com/haerixn/lyrxqss-2/blob/df1f42f7e18ac7f122162f779bdeec41a43ee21f/sua%20mini%20figure%20%CB%9A%E2%80%A7%F0%9F%AA%BC%EF%BD%A1%E2%8B%86-Photoroom.png" alt="Açıklama" width="400">
 </p>
-
-                    
-
+                  
 <p align="center">
   <em>Not just anybody</em> 너를 상상했지 항상 닮아있던 처음 느낌 그대로 난
 기다렸지 <em>all this time.</em>
