@@ -14,7 +14,6 @@
 </p>
 
 <p align="center">
-  <a href="https://phmhanni.straw.page">strawpage</a>&nbsp;&nbsp;&nbsp;
   <a href="https://lyrxqss.atabook.org">atabook</a>
 </p> 
  
