@@ -3,7 +3,7 @@
 
 
 <p align="center">
-  <img src="https://github.com/haerixn/lyrxqss-2/blob/fd2014a0cb73a25c0d30b99df9476371f03e5fe1/%E2%80%94%20%E2%A0%80%20Sua%E2%A0%80%E2%A0%80%20Alnst%E2%A0%80%20%E2%A0%80%2C%E2%A0%80%E2%A0%80%20Cr%E2%A0%80%20%E2%A0%80%20lubyaalnst%E2%A0%80%E2%A0%80%20!-Photoroom.png" alt="Açıklama" width="400">
+  <img src="https://github.com/haerixn/haerixn/blob/743d45b3c010c58be7fc782a0331c550a8adda19/Jett%20Revive%20Me%20Jett%20Valorant%20Spray%20Waterproof%20Sticker%20-%20Etsy-Photoroom.png" alt="Açıklama" width="600">
 </p>
                   
 <p align="center">
