@@ -3,7 +3,7 @@
 
 
 <p align="center">
-  <img src="https://github.com/haerixn/haerixn/blob/743d45b3c010c58be7fc782a0331c550a8adda19/Jett%20Revive%20Me%20Jett%20Valorant%20Spray%20Waterproof%20Sticker%20-%20Etsy-Photoroom.png" alt="Açıklama" width="600">
+  <img src="https://github.com/haerixn/haerixn/blob/82977a763a6242989b7842ecfce287d5cd02aabf/clove%20-%20valorant%20(1)-Photoroom.png" alt="Açıklama" width="500">
 </p>
                   
 <p align="center">
