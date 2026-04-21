@@ -3,7 +3,7 @@
 
 
 <p align="center">
-  <img src="https://github.com/haerixn/haerixn/blob/82977a763a6242989b7842ecfce287d5cd02aabf/clove%20-%20valorant%20(1)-Photoroom.png" alt="Açıklama" width="500">
+  <img src="https://github.com/haerixn/haerixn/blob/fb4099167a1680477beedbdebd1a092163ed8616/%E1%B6%BB%20%F0%9D%98%87%20%F0%90%B0%81.jpg" alt="Açıklama" width="400">
 </p>
                   
 <p align="center">
