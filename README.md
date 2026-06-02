@@ -23,7 +23,7 @@
 
 
 <p align="center">
- <img src="https://komarev.com/ghpvc/?username=lyrxqss&label=stalkers!?&color=9ec5ff" alt="hiding from stalkers" /> 
+ <img src="https://komarev.com/ghpvc/?username=lyrxqss&label=meow&color=bb7ec2" alt="meow" /> 
 </p>
 
 
