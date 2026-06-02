@@ -6,10 +6,7 @@
   <img src="https://github.com/haerixn/haerixn/blob/e202ea69c73bba359830eccbce64c3016e6b1c74/indir%20(2)-Photoroom.png" alt="Açıklama" width="400">
 </p>
                   
-<p align="center">
-  <em>Not just anybody</em> 너를 상상했지 항상 닮아있던 처음 느낌 그대로 난
-기다렸지 <em>all this time.</em>
-</p>
+
 
 </p>
 
