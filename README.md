@@ -3,7 +3,7 @@
 
 
 <p align="center">
-  <img src="https://github.com/haerixn/haerixn/blob/78ce297c53b739754479ede5a705e7ea820284b0/ts%20is%20fire.jpg" alt="Açıklama" width="400">
+  <img src="https://github.com/haerixn/haerixn/blob/e202ea69c73bba359830eccbce64c3016e6b1c74/indir%20(2)-Photoroom.png" alt="Açıklama" width="400">
 </p>
                   
 <p align="center">
